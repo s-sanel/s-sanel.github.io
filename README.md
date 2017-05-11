@@ -1,1 +1,1 @@
-# [Personal website](http://sanel-selmanovic-us)
+# [Personal website](http://sanel-selmanovic.us)
